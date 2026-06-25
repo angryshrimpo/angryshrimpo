@@ -21,18 +21,18 @@
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
- ٠࣪⭑𖦹⋆.˚ I AM 18 !
+ ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery34/8f128bc0.gif?v=29416114" alt="shrimpo border made by kyokolima"> I AM 18 !
 
- ٠࣪⭑𖦹⋆.˚ I SWEAR FREQUENTLY AS SHRIMPO.
+ ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery20/49144169.gif?v=29416114"> I SWEAR FREQUENTLY AS SHRIMPO.
 
- ٠࣪⭑𖦹⋆.˚ PLEASE ASK IF YOU WANT ME TO STOP BEING SHRIMPO.
+ ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114" alt="shrimpo border made by kyokolima"> PLEASE ASK IF YOU WANT ME TO STOP BEING SHRIMPO.
 
- ٠࣪⭑𖦹⋆.˚ I WILL FREQUENTLY BE PRETTY, OR DOWNRIGHT MEAN. I'M SHRIMPO, WHAT DO YOU EXPECT.
+ ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=29416114"> I WILL FREQUENTLY BE PRETTY, OR DOWNRIGHT MEAN. I'M SHRIMPO, WHAT DO YOU EXPECT. PLEASE SAY IF I GO TOO FAR... INT AT YOUR OWN RISK!
 
 </details>
 <!--
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+https://pixels.crd.co/assets/images/gallery20/49144169.gif?v=29416114
 Here are some ideas to get you started:
 https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pw_Kleki.png
 file.garden/agIYfQeM_iHVXhgb/imageedit_3_6453162315.gif

@@ -15,8 +15,8 @@
 
 <details>
 
-<summary>Tips for collapsed sections</summary>
-
+<summary>ᵎ!ᵎ 𝘽𝙀𝙁𝙊𝙍𝙀 𝙔𝙊𝙐 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 ᵎ!ᵎ</summary>
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 ### You can add a header
 
 You can add text within a collapsed section.

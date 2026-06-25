@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/imageedit_3_6453162315.gif" alt="shrimpo border made by kyokolima">
+  <img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pw_Kleki.png" alt="shrimpo border made by kyokolima">
 </p>
 
 ---
@@ -13,7 +13,8 @@
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
-
+https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pw_Kleki.png
+file.garden/agIYfQeM_iHVXhgb/imageedit_3_6453162315.gif
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...

@@ -3,7 +3,9 @@
 </p>
 
 ---
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Covered+By+Your+Grace&size=25&duration=3500&pause=440&color=E97638&center=true&vCenter=true&width=435&lines=%22+I+DON'T+KNOW+WHY+EVERYONE+ELSE+TRIES%2C+%22;%22+WHEN+IM+JUST+BETTER!!!+%22" alt="Typing SVG" /></a>
+<p align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Covered+By+Your+Grace&size=25&duration=3500&pause=440&color=E97638&center=true&vCenter=true&width=435&lines=%22+I+DON'T+KNOW+WHY+EVERYONE+ELSE+TRIES%2C+%22;%22+WHEN+IM+JUST+BETTER!!!+%22" alt="Typing SVG" /></a>
+  </p>
 <img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" />
 
 ### _**WHAT ARE YOU DOING HERE?**_

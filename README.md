@@ -9,8 +9,6 @@
 
 <img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" /><br/>
 
-<img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://https://gifcity.carrd.co/assets/images/gallery14/7de1ed7b.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery17/a8e65375.gif?v=3fc8f5cd" /> 
-
 ### _**WHAT ARE YOU DOING HERE?**_
 * 𝘐'𝘔 𝘚𝘏𝘙𝘐𝘔𝘗𝘖!! 𝘛𝘏𝘐𝘚 𝘐𝘚 𝘈 𝘗𝘈𝘙𝘖𝘋𝘠 𝘈𝘊𝘊𝘖𝘜𝘕𝘛 𝘛𝘏𝘈𝘛 𝘐 𝘜𝘚𝘌 𝘍𝘖𝘙 𝘈𝘓𝘓 𝘔𝘠 𝘚𝘏𝘙𝘐𝘔𝘗𝘖 𝘙𝘌𝘓𝘈𝘛𝘌𝘋 𝘗𝘙𝘖𝘑𝘌𝘊𝘛𝘚!
 
@@ -33,7 +31,10 @@
 
 </details>
 
+<img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" />  <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" />  <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery17/a8e65375.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/f9785f2c.gif?v=3fc8f5cd" /> 
 <!--
+
+https://gifcity.carrd.co/assets/images/gallery14/f9785f2c.gif?v=3fc8f5cd
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 https://pixels.crd.co/assets/images/gallery20/49144169.gif?v=29416114
 Here are some ideas to get you started:

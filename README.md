@@ -1,9 +1,12 @@
 <p align="center">
-  <img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/imageedit_3_6453162315.gif" alt="Material Bread logo">
+  <img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/imageedit_3_6453162315.gif" alt="shrimpo border made by kyokolima">
 </p>
-## I HATE YOU ALL!!!! 
 
-![Shit](https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0ne_Kleki.png)
+---
+
+<img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0ne_Kleki.png" />
+
+I'M SHRIMPO!! THIS IS A PARODY ACCOUNT THAT I USE FOR ALL MY SHRIMPO RELATED PROJECTS!
 
 <!--
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -25,11 +25,12 @@
 
  ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery20/49144169.gif?v=29416114"> I SWEAR FREQUENTLY AS SHRIMPO.
 
- ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114" alt="shrimpo border made by kyokolima"> PLEASE ASK IF YOU WANT ME TO STOP BEING SHRIMPO.
+ ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114" alt="shrimpo border made by kyokolima"> PLEASE ASK IF YOU WANT ME TO STOP BEING SHRIMPO / ' _TONE THE FUCK DOWN YOU OVERDRAMATIC TODDLER_ '
 
  ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=29416114"> I WILL FREQUENTLY BE PRETTY, OR DOWNRIGHT MEAN. I'M SHRIMPO, WHAT DO YOU EXPECT. PLEASE SAY IF I GO TOO FAR... INT AT YOUR OWN RISK!
 
 </details>
+<img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" />
 <!--
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 https://pixels.crd.co/assets/images/gallery20/49144169.gif?v=29416114

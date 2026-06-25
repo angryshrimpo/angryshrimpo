@@ -7,7 +7,8 @@
   
 ---
 
-<img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" />
+<img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" /><br/>
+<img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" /><br/>
 
 ### _**WHAT ARE YOU DOING HERE?**_
 * 𝘐'𝘔 𝘚𝘏𝘙𝘐𝘔𝘗𝘖!! 𝘛𝘏𝘐𝘚 𝘐𝘚 𝘈 𝘗𝘈𝘙𝘖𝘋𝘠 𝘈𝘊𝘊𝘖𝘜𝘕𝘛 𝘛𝘏𝘈𝘛 𝘐 𝘜𝘚𝘌 𝘍𝘖𝘙 𝘈𝘓𝘓 𝘔𝘠 𝘚𝘏𝘙𝘐𝘔𝘗𝘖 𝘙𝘌𝘓𝘈𝘛𝘌𝘋 𝘗𝘙𝘖𝘑𝘌𝘊𝘛𝘚!
@@ -30,7 +31,7 @@
  ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=29416114"> I WILL FREQUENTLY BE PRETTY, OR DOWNRIGHT MEAN. I'M SHRIMPO, WHAT DO YOU EXPECT. PLEASE SAY IF I GO TOO FAR... INT AT YOUR OWN RISK!
 
 </details>
-<img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" />
+
 <!--
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 https://pixels.crd.co/assets/images/gallery20/49144169.gif?v=29416114

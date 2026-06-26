@@ -2,7 +2,7 @@
   <img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pw_Kleki.png" alt="shrimpo border made by kyokolima">
 </p>
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Eater&size=18&duration=3300&pause=800&color=E97638&center=true&vCenter=true&width=435&lines=%22+I+DONT+KNOW+WHY+EVERYONE+ELSE+TRIES...+%22;%22+WHEN+IM+JUST+BETTER!!!+%22" alt="Typing SVG" /></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Eater&size=18&duration=3300&pause=800&color=F3D68A&center=true&vCenter=true&width=515&lines=%22+I+DONT+KNOW+WHY+EVERYONE+ELSE+TRIES...+%22;%22+WHEN+IM+JUST+BETTER!!!+%22;%F0%9F%92%A5%F0%9F%8D%A3+%E1%B6%A0%E1%B6%B8%E1%B6%9C%E1%B5%8F%E1%B5%A7%E2%82%92%E1%B5%A4!+%F0%9F%A5%8A%F0%9F%92%A5;%22+I+HATE+TOONS+WHO+THINK+THEY'RE+THE+MAIN+TOPIC!!+%22;%22+...+IT+SHOULD+BE+ME!!!!++%22" alt="Typing SVG" /></a>
   </p>
   
 ---
@@ -36,6 +36,8 @@
 
 
 <!--
+https://readme-typing-svg.demolab.com/demo/?font=Eater&size=18&duration=3300&pause=800&color=F3D68A&center=true&vCenter=true&width=515&lines=%22+I+DONT+KNOW+WHY+EVERYONE+ELSE+TRIES...+%22;%22+WHEN+IM+JUST+BETTER!!!+%22;%F0%9F%92%A5%F0%9F%8D%A3+%E1%B6%A0%E1%B6%B8%E1%B6%9C%E1%B5%8F%E1%B5%A7%E2%82%92%E1%B5%A4!+%F0%9F%A5%8A%F0%9F%92%A5;%22+I+HATE+TOONS+WHO+THINK+THEY'RE+THE+MAIN+TOPIC!!+%22;%22+...+IT+SHOULD+BE+ME!!!!++%22
+permalink above
 <img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/shrimpdandysitsf.png" alt="shrimpo border made by kyokolima">
 
 <img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" /><br/>

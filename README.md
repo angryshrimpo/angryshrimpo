@@ -7,7 +7,7 @@
   
 ---
 
-<img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" /><br/>
+<img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/shrimpdandysitsf.png" alt="shrimpo border made by kyokolima" ><br/>
 
 ### _**WHAT ARE YOU DOING HERE?**_
 * 𝘐'𝘔 𝘚𝘏𝘙𝘐𝘔𝘗𝘖!! 𝘛𝘏𝘐𝘚 𝘐𝘚 𝘈 𝘗𝘈𝘙𝘖𝘋𝘠 𝘈𝘊𝘊𝘖𝘜𝘕𝘛 𝘛𝘏𝘈𝘛 𝘐 𝘜𝘚𝘌 𝘍𝘖𝘙 𝘈𝘓𝘓 𝘔𝘠 𝘚𝘏𝘙𝘐𝘔𝘗𝘖 𝘙𝘌𝘓𝘈𝘛𝘌𝘋 𝘗𝘙𝘖𝘑𝘌𝘊𝘛𝘚! 𝘉𝘌𝘊𝘈𝘜𝘚𝘌 𝘐𝘔 𝘈𝘞𝘌𝘚𝘖𝘔𝘌 𝘈𝘕𝘋 𝘋𝘌𝘚𝘌𝘙𝘝𝘌 𝘐𝘛 𝘈𝘓𝘓.
@@ -32,7 +32,13 @@
 </details>
 
 <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" />  <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" />  <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery17/a8e65375.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/f9785f2c.gif?v=3fc8f5cd" /> 
+
+
+
 <!--
+<img width="500" src="https://file.garden/agIYfQeM_iHVXhgb/shrimpdandysitsf.png" alt="shrimpo border made by kyokolima">
+
+<img align="left" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/2026_06_25_0pc_Kleki.png" /><br/>
 
 https://gifcity.carrd.co/assets/images/gallery14/f9785f2c.gif?v=3fc8f5cd
 **angryshrimpo/angryshrimpo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

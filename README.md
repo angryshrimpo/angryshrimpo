@@ -29,6 +29,8 @@
 
  ٠࣪⭑𖦹⋆<img width="20" src="https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=29416114"> I WILL FREQUENTLY BE PRETTY, OR DOWNRIGHT MEAN. I'M SHRIMPO, WHAT DO YOU EXPECT. PLEASE SAY IF I GO TOO FAR... INT AT YOUR OWN RISK!
 
+ > ٠࣪⭑𖦹⋆ I AM NOT _REALLY_ SHRIMPO. I DO NOT CONDONE HIS BEHAVIOURS AND ATTITUDE, DESPITE MY LOVE FOR HIM. I WILL ONLY INTERACT WITH PEOPLE WHO CONSENT TO HIS CRUELER BEHAVIOURS AND/OR KNOW WHAT THEY'RE UP FOR. 
+
 </details>
 
 <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=3fc8f5cd" />  <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/108859ad.gif?v=3fc8f5cd" />  <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery17/a8e65375.gif?v=3fc8f5cd" /> <img align="left" width="200" src="https://gifcity.carrd.co/assets/images/gallery14/f9785f2c.gif?v=3fc8f5cd" /> 
